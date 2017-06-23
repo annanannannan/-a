@@ -1,1 +1,1 @@
-![情報社会論.png](file:///Users/anna/Desktop/anna/情報社会論.png)
+![情報社会論](https://i.gyazo.com/a29e3ffadef7f04ce5f6a2b597ca5eea.png)
